@@ -1,1 +1,1 @@
-# Hand_Prothesis_project-
+# Hand_Prosthesis_project-
